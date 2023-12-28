@@ -1,2 +1,1 @@
-- 👋 Hi, I’m @trualliant-developer
-- 👨‍💻 Full Stack developer
+- TOKOL TOKOL TOKOL
